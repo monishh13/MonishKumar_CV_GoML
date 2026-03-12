@@ -2,6 +2,7 @@
 
 📍 Coimbatore, Tamil Nadu
 📧 Email: **[monishkumar1141@gmail.com](mailto:monishkumar1141@gmail.com)**
+
 🔗 LinkedIn: **[https://linkedin.com/in/monishkumar1](https://linkedin.com/in/monishkumar1)**
 🔗 GitHub: **[https://github.com/monishh13](https://github.com/monishh13)**
 
